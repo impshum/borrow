@@ -1,0 +1,3 @@
+#### Half the leg work done!
+
+Streams subreddit for targets. Spews info...
